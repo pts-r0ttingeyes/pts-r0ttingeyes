@@ -9,8 +9,11 @@ $$\color{#7b1919}\text{  SO YOU CAN BE MY TRUE LOVE TONIGHT !  }$$
 
 <p align="center"
 
-$$\color{#6f1010}\text{ RULES UPON THIS ACCOUNT. }
+$$\color{#6f1010}\text{ RULES UPON THIS ACCOUNT. }$$
+
 $$\color{#6f1010}\text{ YOU CAN ONLY NOMINATE YOURSELF AS ONE CHARACTER. DOUBLES ARE NOT ALLOWED. }$$
+
 $$\color{#6f1010}\text{ PROBLEMATIC MEDIA SUCH AS TCC AREN'T ALLOWED. }$$
+
 $$\color{#6f1010}\text{ BEING ADDED CAN TAKE A WHIILE, BE PATIENT. }$$
 
