@@ -37,7 +37,7 @@ $$\color{#9a1818}\text{ CHARACTER NOMINATIONS. }$$
 
 ![image](https://64.media.tumblr.com/0a7289dbb97ebfe2095a012de32a9f22/1bf8221d27fdef63-b1/s75x75_c1/205d575912c44a1bd51d769d407532dcdf2afb81.gifv) 
 
-$$\color{#ac1818}\text{ @neverwanted2dance as vee version 1. }$$
+$$\color{#ac1818}\text{ neverwanted2dance as vee version 1. }$$
 
 <p align="center"
 
