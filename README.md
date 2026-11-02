@@ -87,6 +87,10 @@ $$\color{#9a1818}\text{ DUOS / TRIOS / GROUPS. }$$
 
 <p align="center"
 
+$$\color{#9a1818}\text{ neverwanted2dance / glisteningmirrors as fashionshow ( dandy ' s world ) . }$$ 
+
+<p align="center"
+
 $$\color{#9a1818}\text{ sw33tsug4rcookie / sp4ceb3rry as mooncookie ( dandy ' s world ) . }$$ 
 
 <p align="center"
