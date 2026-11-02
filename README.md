@@ -38,6 +38,11 @@ $$\color{#6f1010}\text{ BEING ADDED CAN TAKE A WHIILE, BE PATIENT. }$$
 
 <p align="center"
   
+$$\color{#6f1010}\text{ YOU CAN NOMINATE YOURSELF FOR ONE SECTION ON ONE ACCOUNT , ANOTHER ON A DIFFERENT , HOWEVER IT ' S NOT PREFERRED TO DO THAT. }$$
+
+
+<p align="center"
+  
 ![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)
 
 <p align="center"
@@ -50,7 +55,32 @@ $$\color{#9a1818}\text{ CHARACTER NOMINATIONS. }$$
 
 <p align="center"
 
-$$\color{#ac1818}\text{ neverwanted2dance as vee version 1. }$$
+$$\color{#ac1818}\text{ neverwanted2dance as vee version 1 ( dandy ' s world ). }$$
+
+<p align="center"
+
+$$\color{#ac1818}\text{ glisteningmirrors as glisten ( dandy ' s world ). }$$
+
+<p align="center"
+
+$$\color{#ac1818}\text{ sw33tsug4rcookie as ginger ( dandy ' s world ). }$$
+
+<p align="center"
+
+$$\color{#ac1818}\text{ sp4ceb3rry as astro novalite ( dandy ' s world ). }$$
+
+<p align="center"
+
+$$\color{#ac1818}\text{ cobblebob as foot soldier ( plants vs zombies ). }$$
+
+<p align="center"
+
+$\color{#ac1818}\text{ sanguinesilence as blot ( dandy ' s world ). }$$
+
+<p align="center"
+
+
+
 
 <p align="center"
 
@@ -59,6 +89,14 @@ $$\color{#ac1818}\text{ neverwanted2dance as vee version 1. }$$
 <p align="center"
 
 $$\color{#9a1818}\text{ DUOS / TRIOS / GROUPS. }$$ 
+
+<p align="center"
+
+$$\color{#9a1818}\text{ sw33tsug4rcookie / sp4ceb3rry as mooncookie ( dandy ' s world ) . }$$ 
+
+<p align="center"
+
+$$\color{#9a1818}\text{ cobblebob / benreyfreeman as the cold ones . }$$ 
 
 <p align="center"
 
