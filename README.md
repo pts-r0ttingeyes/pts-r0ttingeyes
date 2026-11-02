@@ -87,7 +87,7 @@ $\color{#ac1818}\text{ firepupp as marshall ( paw patrol ). }$
 
 <p align="center"
 
-$\color{#ac1818}\text{ anthonytenna as mr. ant tenna ( deltarune ). }$
+$\color{#ac1818}\text{ anthonytenna / timesly as mr. ant tenna ( deltarune ). }$
 
 <p align="center"
 
@@ -104,6 +104,14 @@ $\color{#ac1818}\text{ MrNovalite as bassie bloomington ( dandy ' s world ). }$
 <p align="center"
 
 $\color{#ac1818}\text{ cosmothepastryy as cosmo ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ l4nternfae / blotsgutz as flins ( genshin impact ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ TheGlitchedSystem as blaze the cat ( sonic the hedgehog ). }$
 
 
 <p align="center"
