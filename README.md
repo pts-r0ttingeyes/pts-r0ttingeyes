@@ -79,6 +79,10 @@ $\color{#ac1818}\text{ sanguinesilence as blot ( dandy ' s world ). }$
 
 <p align="center"
 
+$\color{#ac1818}\text{ firepupp as marshall ( paw patrol ). }$
+
+<p align="center"
+
 ![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)
 
 <p align="center"
