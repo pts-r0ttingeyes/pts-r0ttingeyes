@@ -40,6 +40,10 @@ $$\color{#6f1010}\text{ BEING ADDED CAN TAKE A WHIILE, BE PATIENT. }$$
   
 $$\color{#6f1010}\text{ YOU CAN NOMINATE YOURSELF FOR ONE SECTION ON ONE ACCOUNT , ANOTHER ON A DIFFERENT , HOWEVER IT ' S NOT PREFERRED TO DO THAT. }$$
 
+<p align="center"
+  
+$$\color{#6f1010}\text{ I CHECK GITHUBS, IF YOU'RE ASSOCIATED WITH PROBLEMATIC PEOPLE OR ARE ONE , YOU WON'T BE ADDED. SORRY. }$$
+
 
 <p align="center"
   
@@ -80,10 +84,6 @@ $\color{#ac1818}\text{ sanguinesilence as blot ( dandy ' s world ). }$
 <p align="center"
 
 $\color{#ac1818}\text{ firepupp as marshall ( paw patrol ). }$
-
-<p align="center"
-
-$\color{#ac1818}\text{ MikeMak0wski as waxwell ( dandy ' s world ). }$
 
 <p align="center"
 
