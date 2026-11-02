@@ -97,6 +97,14 @@ $\color{#ac1818}\text{ garbagenoise as spamton g. spamton ( deltarune ). }$
 
 $\color{#ac1818}\text{ 08clipse as osamu dazai ( bungo stray dogs ). }$
 
+<p align="center"
+
+$\color{#ac1818}\text{ MrNovalite as bassie bloomington ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ cosmothepastryy as cosmo ( dandy ' s world ). }$
+
 
 <p align="center"
 
