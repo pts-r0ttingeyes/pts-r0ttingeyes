@@ -75,11 +75,24 @@ $$\color{#ac1818}\text{ cobblebob as foot soldier ( plants vs zombies ). }$$
 
 <p align="center"
 
-$\color{#ac1818}\text{ sanguinesilence as blot ( dandy ' s world ). }$
+$\color{#ac1818}\text{ sanguinesilence as blot ( dandy ' s world ). }$$
 
 <p align="center"
 
-$\color{#ac1818}\text{ firepupp as marshall ( paw patrol ). }$
+$\color{#ac1818}\text{ firepupp as marshall ( paw patrol ). }$$
+
+<p align="center"
+
+$\color{#ac1818}\text{ MikeMak0wski as waxwell ( dandy ' s world ). }$$
+
+<p align="center"
+
+$\color{#ac1818}\text{ anthonytenna as mr. ant tenna ( deltarune ). }$$
+
+<p align="center"
+
+$\color{#ac1818}\text{ garbagenoise as spamton g. spamton ( deltarune ). }$$
+
 
 <p align="center"
 
@@ -100,6 +113,10 @@ $$\color{#9a1818}\text{ sw33tsug4rcookie / sp4ceb3rry as mooncookie ( dandy ' s 
 <p align="center"
 
 $$\color{#9a1818}\text{ cobblebob / benreyfreeman as the cold ones . }$$ 
+
+<p align="center"
+
+$$\color{#9a1818}\text{ anthonytenna / garbagenoise as spamtenna ( deltarune ) . }$$ 
 
 <p align="center"
 
