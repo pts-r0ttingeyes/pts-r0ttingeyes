@@ -75,7 +75,7 @@ $$\color{#ac1818}\text{ cobblebob as foot soldier ( plants vs zombies ). }$$
 
 <p align="center"
 
-$\color{#ac1818}\text{ sanguinesilence as blot ( dandy ' s world ). }$$
+$\color{#ac1818}\text{ sanguinesilence as blot ( dandy ' s world ). }$
 
 <p align="center"
 
