@@ -93,6 +93,10 @@ $\color{#ac1818}\text{ anthonytenna as mr. ant tenna ( deltarune ). }$
 
 $\color{#ac1818}\text{ garbagenoise as spamton g. spamton ( deltarune ). }$
 
+<p align="center"
+
+$\color{#ac1818}\text{ 08clipse as osamu dazai ( bungo stray dogs ). }$
+
 
 <p align="center"
 
