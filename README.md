@@ -43,7 +43,7 @@ $$\color{#ac1818}\text{ neverwanted2dance as vee version 1. }$$
 
 ![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)![image](https://64.media.tumblr.com/f43aeefac52dd129bead9ccee0197d7a/1bf8221d27fdef63-5f/s250x400/a62c990bcff386531bdcc4864e87d1d951ec0c6a.gifv)
 
-$$\color{#9a1818}\text{ DUOS / TRIOS. }$$ 
+$$\color{#9a1818}\text{ DUOS / TRIOS / GROUPS. }$$ 
 
 <p align="center"
 
