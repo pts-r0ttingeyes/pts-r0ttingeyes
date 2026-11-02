@@ -113,6 +113,10 @@ $\color{#ac1818}\text{ l4nternfae / blotsgutz as flins ( genshin impact ). }$
 
 $\color{#ac1818}\text{ TheGlitchedSystem as blaze the cat ( sonic the hedgehog ). }$
 
+<p align="center"
+
+$\color{#ac1818}\text{ cupcakefetti as cocoa ( dandy ' s world ). }$
+
 
 <p align="center"
 
