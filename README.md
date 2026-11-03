@@ -9,6 +9,10 @@ $$\color{#7b1919}\text{  SO YOU CAN BE MY TRUE LOVE TONIGHT !  }$$
 
 <p align="center"
 
+$$\color{#7b1919}\text{  LAST UPDATED : 11/O2/2O26  }$$
+
+<p align="center"
+
 ![image](https://64.media.tumblr.com/4ee75a59d4fb54db841e00d5be883b19/1bf8221d27fdef63-74/s100x200/44fc62f00dd18a416ce124c68129ad7a352af043.gifv)
 
 
@@ -31,10 +35,6 @@ $$\color{#6f1010}\text{ YOU CAN ONLY NOMINATE YOURSELF AS ONE CHARACTER. DOUBLES
 <p align="center"
 
 $$\color{#6f1010}\text{ PROBLEMATIC MEDIA SUCH AS TCC AREN'T ALLOWED. }$$
-
-<p align="center"
-
-$$\color{#6f1010}\text{ BEING ADDED CAN TAKE A WHIILE, BE PATIENT. }$$
 
 <p align="center"
   
@@ -117,6 +117,41 @@ $\color{#ac1818}\text{ TheGlitchedSystem as blaze the cat ( sonic the hedgehog )
 
 $\color{#ac1818}\text{ cupcakefetti as cocoa ( dandy ' s world ). }$
 
+<p align="center"
+
+$\color{#ac1818}\text{ Aminafklol as looey ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ disorderlyfashion as squirrelflight ( warrior cats ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Neuropaychotic as nico ( nanabaka ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Puppipilled as stan marsh ( south park ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ BetrayedNotes as betrayed 1x1x1x1 ( forsaken ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ ASTROSLAMENT as delilah keen ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ i-kittytrap as yatta ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ DreamsAndRJX as marcelo ( bridge mankind collapse ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ FISHTHESEAS as prisoner ( isle - roblox ). }$
 
 <p align="center"
 
