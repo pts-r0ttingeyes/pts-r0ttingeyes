@@ -9,7 +9,7 @@ $$\color{#7b1919}\text{  SO YOU CAN BE MY TRUE LOVE TONIGHT !  }$$
 
 <p align="center"
 
-$$\color{#7b1919}\text{  LAST UPDATED : 11/O2/2O26  }$$
+$$\color{#7b1919}\text{  LAST UPDATED : 11/O9/2O26  }$$
 
 <p align="center"
 
@@ -152,6 +152,70 @@ $\color{#ac1818}\text{ DreamsAndRJX as marcelo ( bridge mankind collapse ). }$
 <p align="center"
 
 $\color{#ac1818}\text{ FISHTHESEAS as prisoner ( isle - roblox ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ a1p1yuri as andrew2002 ( the collinlock16 continuity ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ sicklyrose as akutagawa ryūnosuke ( bad ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ NocturnalWhisper as skid ' s dad ( spooky month ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Ajolotee10 as protagonist / archie ( author ' s protagonist ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Opalescance as spottedleaf  ( warrior cats ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ naturalharmoniaa as natural harmonia gropius ( pokémon ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Snuckiee as lumine ( genshin impact ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ starsoflumion as goob ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Springtastic as mepad ( ii ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Lxnkzz as phantasia ( toon ' s universe ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ pebbledays as pebble ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ denguemon as shin joong hyun ( miin 1975 ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ stinkyrustyfork as shrimpo ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Kurokaori as kasane teto ( utau ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ ColeCassidiesCanonBf as sprout seedly ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ crazyblcx as crazyblox ( fe2 ). }$
 
 <p align="center"
 
