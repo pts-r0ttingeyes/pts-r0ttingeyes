@@ -9,7 +9,7 @@ $$\color{#7b1919}\text{  SO YOU CAN BE MY TRUE LOVE TONIGHT !  }$$
 
 <p align="center"
 
-$$\color{#7b1919}\text{  LAST UPDATED : 11/O9/2O26  }$$
+$$\color{#7b1919}\text{  LAST UPDATED : 11/11/2O26  }$$
 
 <p align="center"
 
@@ -216,6 +216,42 @@ $\color{#ac1818}\text{ ColeCassidiesCanonBf as sprout seedly ( dandy ' s world )
 <p align="center"
 
 $\color{#ac1818}\text{ crazyblcx as crazyblox ( fe2 ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ sharpestvictory as coiny ( bfdi ). 
+
+<p align="center"
+
+$\color{#ac1818}\text{ ryomxnsukuna as ryomen sukuna ( jjk ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ kiwiconiccc as kusuo saiki ( saiki k ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ funfettis as shelly ( dandy ' s world ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Nexxiro as wade herbert ( gta5 ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ T0uchtonetelephone as cesar torres ( tmc ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ spokeisheres as spokeishere ( uu ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Xylerrrr as sword ( phighting ). }$
+
+<p align="center"
+
+$\color{#ac1818}\text{ Pwnatious as regent pwnatious "moneybags" the III ( phighting ). }$
 
 <p align="center"
 
