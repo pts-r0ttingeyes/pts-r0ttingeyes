@@ -219,7 +219,7 @@ $\color{#ac1818}\text{ crazyblcx as crazyblox ( fe2 ). }$
 
 <p align="center"
 
-$\color{#ac1818}\text{ sharpestvictory as coiny ( bfdi ). 
+$\color{#ac1818}\text{ sharpestvictory as coiny ( bfdi ). }$ 
 
 <p align="center"
 
