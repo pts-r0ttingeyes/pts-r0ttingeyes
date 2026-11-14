@@ -131,10 +131,6 @@ $\color{#ac1818}\text{ Neuropaychotic as nico ( nanabaka ). }$
 
 <p align="center"
 
-$\color{#ac1818}\text{ Puppipilled as stan marsh ( south park ). }$
-
-<p align="center"
-
 $\color{#ac1818}\text{ BetrayedNotes as betrayed 1x1x1x1 ( forsaken ). }$
 
 <p align="center"
